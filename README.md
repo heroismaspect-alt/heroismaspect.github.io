@@ -1,2 +1,3 @@
 # heroismaspect.github.io
-idk bruh...
+Hi my name is h_ro and I'm a a university student working towards my bachelors in science if you like and enjoy the app ill have a patreon so people can donate if you WANT I'm not locking any feature behind pay walls or anything as i didn't create this app Claude did so enjoy. what is this app for? well its a white board app that help people forge ideas using mood boards or it helps create study boards with your friends, project planning or really anything you can think of, it also contains specific features to aid with game development like being able import 3d assets. bring your ideas to life 
+https://www.patreon.com/cw/H_ROsocean
